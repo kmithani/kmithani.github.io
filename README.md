@@ -1,6 +1,8 @@
 ## MD/MEng (University of Toronto)
 
-### Neuroscience researcher and biomedical engineer by training. Incoming neurosurgery resident at the University of Toronto.
+### Neuroscience researcher
+### Biomedical engineer
+### Incoming neurosurgery resident at the University of Toronto.
 
 Follow me on twitter: [@KarimMithani_CA](https://twitter.com/KarimMithani_CA)
 
