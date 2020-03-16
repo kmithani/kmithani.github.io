@@ -1,4 +1,4 @@
-## Karim Mithani
+# Karim Mithani
 
 Follow me on twitter: [@KarimMithani_CA](https://twitter.com/KarimMithani_CA)
 
