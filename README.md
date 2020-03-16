@@ -7,7 +7,9 @@ Check out my publications on [ResearchGate](https://www.researchgate.net/profile
 ## Education
 
 Incoming Neurosurgery Resident (PGY-1) – University of Toronto
+
 MD/MEng – University of Toronto (2020)
+
 H.BHSc – McMaster University (2016)
 
 ## Ongoing Projects
