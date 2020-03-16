@@ -1,4 +1,4 @@
-# Karim Mithani
+## Karim Mithani
 
 Follow me on twitter: [@KarimMithani_CA](https://twitter.com/KarimMithani_CA)
 
@@ -12,4 +12,4 @@ MD/MEng – University of Toronto (2020)
 
 H.BHSc – McMaster University (2016)
 
-## Ongoing Projects
+## Research Interests
